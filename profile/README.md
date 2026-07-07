@@ -1,4 +1,4 @@
-Looking for a smarter way to trade and save? **Sway Funded** is a prop trading firm offering funded accounts, structured evaluation programs, and opportunities for traders to scale their capital through disciplined trading performance. You can now get an **exclusive 20% discount** by using the promo code: **INVEST** when you register or purchase a challenge.
+Looking for a smarter way to trade and save? **Sway Funded** is a prop trading firm offering funded accounts, structured evaluation programs, and opportunities for traders to scale their capital through disciplined trading performance. You can now get an **exclusive 20% discount** by using the promo code: **INVEST** when you register or purchase a challenge!
 
 💎 **Why Choose Sway Funded?**
 Sway Funded is known for its trader-friendly rules, transparent funding process, and scalable account options designed to help traders grow consistently over time.
